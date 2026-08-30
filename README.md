@@ -3,9 +3,9 @@
 
 　
    　
-    <center><img width="330" height="178" alt="Image" src="https://github.com/user-attachments/assets/f05734f7-7bef-4d62-8410-bb797c9ed7a6" />
+    <center><img width="222" height="220" alt="Image" src="https://github.com/user-attachments/assets/5768c41a-0fdb-49f8-9c03-976f79d784af" />
 
- 　　　　　┈┈　he　they ﹒ྀི
+ 　　　┈┈　he　they ﹒ྀི
 
 
-　　　　　　　[about me](<https://prey.lol/syringie>)
+　　　　　[about me](<https://prey.lol/syringie>)
