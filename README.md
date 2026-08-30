@@ -8,4 +8,4 @@
  　　　　　┈┈　he　they ﹒ྀི
 
 
-　　　　　　　[about me](<https://pouty.lol/syringie>)
+　　　　　　　[about me](<https://prey.lol/syringie>)
